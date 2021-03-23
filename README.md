@@ -149,7 +149,7 @@
 
 ><br>
 >
-> 🔷 [**Linkdin**](https://www.linkedin.com/in/md-moinuddin-ab13a1203 "linkdin")
+> 🔷 [**Linkedin**](https://www.linkedin.com/in/md-moinuddin-ab13a1203 "linkdin")
 > 
 > 📷 [**Instagram**](https://www.instagram.com/noobyco/ "instagram")
 > 
